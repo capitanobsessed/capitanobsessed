@@ -1,4 +1,4 @@
-# [_*"My appearance is much changed, and that’s not the only thing. Even my physical strength is a shadow of what it once was."*_](https://www.youtube.com/watch?v=2o2d7Nr_SN8)
+<img width="1064" height="583" alt="image" src="https://github.com/user-attachments/assets/332bd312-2a4a-4d22-b58b-9dbe86578c0f" /># [_*"My appearance is much changed, and that’s not the only thing. Even my physical strength is a shadow of what it once was."*_](https://www.youtube.com/watch?v=2o2d7Nr_SN8)
 
 ![Alt Text](https://i.pinimg.com/736x/1a/3d/cd/1a3dcd6fa42ee740dd41a9884a12b9b8.jpg)
 
@@ -28,12 +28,14 @@
 
 # DNI:
 
-𓆩♡𓆪 basic criteriaaa! homophobia , transphobia , non-sharing self shippers. zoophiles , pro/com shippers , ppl who think mizuki is a boy , THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fict ones), weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention seekers do not drag me into ur drama , racists , proshippers , pdf files , rcta , dcta , if you joke about lobotomy or other disgusting tortures, ashley and andrew(?) defenders and likers etc. booktok. or if you just want ruin my mood!
+𓆩♡𓆪 basic criteriaaa!:
 
-do not copy and/or inspire from my skins on pt
+🌸⋆｡homophobia , transphobia , non-sharing self shippers. zoophiles , pro/com shippers , ppl who think mizuki is a boy , THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fict ones), weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention seekers do not drag me into ur drama , racists , proshippers , pdf files , rcta , dcta , if you joke about lobotomy or other disgusting tortures, ashley and andrew(?) defenders and likers etc. booktok. or if you just want ruin my mood!
+🌸⋆｡do not copy and/or inspire from my skins on pt
 
-SHIPS that i HATE (i hate ships but these the most!) :
+｡⋆🌸⋆｡SHIPS that i HATE (i hate ships but these the most!) : ｡⋆🌸⋆｡
 ships ESP arle x furina, neuvilette x furina, scara x durin, capitano x mavuika, von lycaon x hugo, skirk x mavuika, navia x neuvilette, clorinde x wriothesley like they seems so f*cking forced duh..
+>╰┈➤if u disagree just hide me duh!
 
 ![Alt Text](https://i.pinimg.com/736x/ab/ef/82/abef820728d4e94307d82f0a7c8917eb.jpg)
 
