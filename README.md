@@ -28,12 +28,14 @@
 
 # DNI:
 
-𓆩♡𓆪 basic criteriaaa! but. - non-sharing self shippers. ships ESP arlefuri, neufuri, scaradurin, capivuika, lycaohugo etc. booktok. or if you just want ruin my mood!
-homophobia , transphobia ,
-
-zoophiles , pro/com shippers , ppl who think mizuki is a boy , THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fict ones), weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention seekers do not drag me into ur drama , racists , proshippers , pdf files , rcta , dcta , if you joke about lobotomy or other disgusting tortures, ashley and andrew(?) defenders and likers
+𓆩♡𓆪 basic criteriaaa! homophobia , transphobia , non-sharing self shippers. zoophiles , pro/com shippers , ppl who think mizuki is a boy , THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fict ones), weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention seekers do not drag me into ur drama , racists , proshippers , pdf files , rcta , dcta , if you joke about lobotomy or other disgusting tortures, ashley and andrew(?) defenders and likers etc. booktok. or if you just want ruin my mood!
 
 do not copy and/or inspire from my skins on pt
+
+SHIPS that i HATE (i hate ships but these the most!) :
+ships ESP arle x furina, neuvilette x furina, scara x durin, capitano x mavuika, von lycaon x hugo, skirk x mavuika, navia x neuvilette, clorinde x wriothesley like they seems so f*cking forced duh..
+
+![Alt Text](https://i.pinimg.com/736x/ab/ef/82/abef820728d4e94307d82f0a7c8917eb.jpg)
 
 >thank u Ami for letting me use ur criteria!! im lazy ass <3
 
@@ -66,4 +68,5 @@ do not copy and/or inspire from my skins on pt
 ![Alt Text](https://i.pinimg.com/736x/3d/b8/f9/3db8f9296b2e5dfe7de80beef4829c68.jpg)
 
 [*"His Rest was in the Night"*](https://www.youtube.com/watch?v=L-5vyf8LFOs&list=RDL-5vyf8LFOs&start_radio=1)
+
 
