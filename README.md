@@ -34,6 +34,7 @@
 🌸⋆｡do not copy and/or inspire from my skins on pt
 
 ｡⋆🌸⋆｡SHIPS that i HATE (i hate ships but these the most!) : ｡⋆🌸⋆｡
+
 ships ESP arle x furina, neuvilette x furina, scara x durin, capitano x mavuika, von lycaon x hugo, skirk x mavuika, navia x neuvilette, clorinde x wriothesley like they seems so f*cking forced duh..
 >╰┈➤if u disagree just hide me duh!
 
