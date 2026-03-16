@@ -12,7 +12,7 @@
 
 ⁀✧.˚•̩̩͙୨୧⸝⸝  . Call me Ren or Raccoon ﹐ ‹𝟹 . always cuddling to my sweetheart on pt !!
 
- 🎀:♡˚₊‧ 13/03!! .17y Pisces! she/them . bi demigirl . sensitive . chronically online
+ 🎀:♡˚₊‧ 13/03!! .18y Pisces! she/them . bi demigirl . sensitive . chronically online
 
  :. ₊ ° . ☆ non sharing my sweetie Amia🌻 hehe!!/j/hj/srs?
 
