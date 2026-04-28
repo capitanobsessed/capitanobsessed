@@ -10,17 +10,11 @@
 
 ╚═════ஓ๑♡๑ஓ═════╝
 
-⁀✧.˚•̩̩͙୨୧⸝⸝  . Call me Ren or Raccoon ﹐ ‹𝟹 . always cuddling to my sweetheart on pt !!
+⁀✧.˚•̩̩͙୨୧⸝⸝  . Call me Ren ﹐ ‹𝟹 .
 
  🎀:♡˚₊‧ 13/03!! .18y Pisces! she/them . bi demigirl . sensitive . chronically online
 
- :. ₊ ° . ☆ non sharing my sweetie Amia🌻 hehe!!/j/hj/srs?
-
 ˚ ◌༘♡: a big Capitano lover! <3
-
- ˖⁺ ໒꒱ matching with my love @heart4cyno as our beloved harbingers໒꒱
-
-•´¨•✿ also feel free to draw on my sp , i appreciate these so badly! !<3
 
 ‿︵‿︵୨˚̣̣̣୧ - - ୨˚̣̣̣୧‿︵‿︵
 
@@ -32,11 +26,6 @@
 
 🌸⋆｡homophobia , transphobia , non-sharing self shippers. zoophiles , pro/com shippers , ppl who think mizuki is a boy , THOSE hh/hb gi/hsr/hi3rd/zzz fans , if u sexualize minors (including fict ones), weird dandy world fans (esp if u simp 4 any of them) , pick me's , attention seekers do not drag me into ur drama , racists , proshippers , pdf files , rcta , dcta , if you joke about lobotomy or other disgusting tortures, ashley and andrew(?) defenders and likers etc. booktok. or if you just want ruin my mood!
 🌸⋆｡do not copy and/or inspire from my skins on pt
-
-｡⋆🌸⋆｡SHIPS that i HATE (i hate ships but these the most!) : ｡⋆🌸⋆｡
-
-ships ESP arle x furina, neuvilette x furina, scara x durin, capitano x mavuika, von lycaon x hugo, skirk x mavuika, navia x neuvilette, clorinde x wriothesley like they seems so f*cking forced duh..
->╰┈➤if u disagree just hide me duh!
 
 ![Alt Text](https://i.pinimg.com/736x/ab/ef/82/abef820728d4e94307d82f0a7c8917eb.jpg)
 
